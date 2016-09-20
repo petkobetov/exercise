@@ -8,5 +8,4 @@ ke pasa mi amigo
 
 aa
 
-asdad
 
